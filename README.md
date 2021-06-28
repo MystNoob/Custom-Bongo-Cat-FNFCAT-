@@ -16,4 +16,4 @@ Just cute meme thing....
 
 ## 4K Boyfriend bongo cat
 
-![Hehe](https://prnt.sc/17bcwu8)
+![Hehe](https://i.imgur.com/qcWRa7W.png)
